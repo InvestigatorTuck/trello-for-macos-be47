@@ -1,4 +1,4 @@
-
+Trello for macOS ultimate Addon: auto-sync & database templates offers the most advanced Trello for macOS addon, with auto-sync and database templates. Ideal for professionals.
 
 
 
